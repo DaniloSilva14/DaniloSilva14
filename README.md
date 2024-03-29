@@ -1,4 +1,4 @@
-## Oi eu sou o Danilo, universitário e estagiário em tecnologia!
+## Oi me chamo Danilo e desenvolvo o futuro!
 
 
 
